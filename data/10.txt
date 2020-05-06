@@ -1,0 +1,75 @@
+We touch I feel a rush
+We clutch
+It isn't much but its enough to make me wonder what's in store for us
+It's lust its torturous,
+You must be a sorceress 'cause you just did the impossible
+Gained my trust don't play games it'll be dangerous, if you fuck me over
+'Cause if I get burnt I'ma show you what it's like to hurt
+'Cause I've been treated like dirt before you and love is "evol"
+Spell it backwards I'll show ya
+Nobody knows me I'm cold, walk down this road all alone
+It's no one's fault but my own, it's the path I've chosen to go
+Frozen as snow I show no emotion whatsoever so
+Don't ask me why I have no love for these mofuckin' hos
+Bloodsucking succubuses, what the fuck is up with this,
+I've tried in this department but
+I ain't had no luck with this,
+It sucks but it's exactly what I thought it would be like tryin' to start over
+I gotta hole in my heart for some kind of emotional rollercoaster
+Something I wont go until you toy with my emotion so it's over
+It's like an explosion every time I hold ya, I wasn't jokin' when I told ya
+You take my breathe away
+Your a supernova, and I'm a
+I'm a space bound rocket ship and your heart's the moon
+And I'm aiming right at you
+Right at you
+Two hundred fifty thousand miles on a clear night in June
+And I'm aiming right at you
+Right at you
+Right at you
+I'll do whatever it takes, when I'm with you I get the shakes
+My body aches when I ain't
+With you I have zero strength
+There's no limit on how far I would go
+No boundaries no lengths
+Why do we say that until we get that person that we think is
+Gonna be that one and then once we get 'em it's never the same
+You want them when they don't want you, soon as they do, feelings change
+It's not a contest and I ain't on no conquest for no mate
+I wasn't looking when I stumbled onto you, must've been fate
+But so much is at stake what the fuck does it take,
+Let's cut to the chase, 'fore a door shuts in your face
+Promise me if I cave in and break and leave myself open, that I wont be makin' a mistake
+I'm a space bound rocket ship and your heart's the moon
+And I'm aiming right at you
+Right at you
+Two hundred fifty thousand miles on a clear night in June
+And I'm aiming right at you
+Right at you
+Right at you
+So after a year and six months, no longer me that you want
+But I love you so much it hurts,
+Never mistreated you once
+I poured my heart out to you,
+Let down my guards swear to God
+I'll blow my brains in your lap, lay here and die in your arms
+Drop to my knees and I'm pleadin' I'm tryin' to stop you from leavin'
+You won't even listen so fuck it, I'm tryin' to stop you from breathin'
+I put both hands on your throat
+I sit on top of you squeezin' til I snap ya neck like a popsicle stick
+Ain't no possible reason , I could think of to let you walk up out this house and let you live
+Tears stream down both of my cheeks
+Then I let you just go and just give
+Before I put that gun to my temple, I told you this
+And I would've done anything for you
+To show you how much I adored you
+But it's over now, It's too late to save our love
+Just promise me you'll think of me
+Every time you look up in the sky and see a star 'cause I'm a
+I'm a space bound rocket ship and your heart's the moon
+And I'm aiming right at you
+Right at you
+Two hundred fifty thousand miles on a clear night in June
+And I'm so lost without you
+Without you
+Without you
